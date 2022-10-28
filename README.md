@@ -37,3 +37,5 @@
 [Инстаграм](https://www.instagram.com/alexandrzyrin)
 
 [Вконтакте](https://vk.com/mordecay2212)
+
+![](https://media.giphy.com/media/JmBXdjfIblJDi/giphy.gif)
